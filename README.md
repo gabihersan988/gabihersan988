@@ -66,4 +66,4 @@ En mi [web profesional](https://gabrielahersan.com/).
 
 ---
 
-[Web](https://gabrielahersan.com/) · [LinkedIn](https://www.linkedin.com/) · [Instagram](https://www.instagram.com/gabrielahersan/)
+[Web](https://gabrielahersan.com/) · [LinkedIn](https://www.linkedin.com/in/gabriela-hersan)) · [Instagram](https://www.instagram.com/gabrielahersan/)
